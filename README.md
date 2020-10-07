@@ -1,6 +1,8 @@
 # itsover
 
-atropelei uma pessoa, 11:03:17
+não leia
+
+<!---atropelei uma pessoa, 11:03:17
 não durmo tem 2 noites
 simplesmente não presto pra esse mundo
 não tem porque eu ainda ficar
@@ -40,7 +42,7 @@ o mais profundo eu
 esse sim
 esse eu é perfeito
 e mesmo sendo
-não mereço estar aqui
+não mereço estar aqui--->
 
 ##################################################################
 
@@ -62,7 +64,7 @@ End Sub
 
 ##################################################################
 
-hoje meu tratamento começa
+<!---hoje meu tratamento começa
 rezo para não alcançar a mania
 se a mania se atinge
 o meu eu perfeito se esvai
@@ -72,6 +74,6 @@ tudo
 tudo
 tudo
 tudo
-pelo meu eu de volta
+pelo meu eu de volta--->
 
 aRl9fNjOL6wY1SRilVCCEosyJY3HRce9zX3EDaEn9GOFCcjHL8NF42VHhdE_9HPC8zlWgAChU_OLXZBlE5W361SA75m4YFM0MiHP8K-soagCn4b-YdqZ_nJzkld3sZz2DJNufudlpUR0EGXIDg-Oj8s9lQOl1ZRBYO9z1FByEPzdRDj8yoG5temHIeQOLTgRQXrkx8elhgoUyfPAKVVqEGoUebVQpcy-sPnZXLRwryE
