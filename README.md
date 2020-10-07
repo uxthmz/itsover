@@ -1,6 +1,6 @@
 # itsover
 
-if u wnt to read, click in "raw"
+if u wnt to read, click in "raw" or blame
 
 <!---atropelei uma pessoa, 11:03:17
 não durmo tem 2 noites
